@@ -1,5 +1,5 @@
 # ポートフォリオ  
 ★ グループ: 26-g024  
-sameguchi-kazumaru  
+★ sameguchi-kazumaru  
 ## このポートフォリオについて    
 作業に遅れないよう頑張ります！
